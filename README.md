@@ -1,2 +1,1 @@
-# project1_ruslanbay_qosnazarov_250259
-# project1_ruslanbay_qosnazarov_250259
+
